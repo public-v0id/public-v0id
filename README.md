@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @public-v0id
+- 👀 I’m interested in suicidal thoughts
+- 🌱 I’m currently learning Java and C++
+- 📫 You'll never reach me, motherfuckers
+- 😄 Pronouns: they/them
+- ⚡ Fun fact: Your life is meaningless, kys
