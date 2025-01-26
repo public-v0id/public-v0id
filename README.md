@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @public-v0id
-- 👀 I’m interested in suicidal thoughts
+- 👀 I’m interested in programming, music and literature
 - 🌱 I’m currently learning Java, C, Assembly and C++
-- 📫 You'll never reach me, motherfuckers
-- 😄 Pronouns: they/them
-- ⚡ Fun fact: Your life is meaningless, kys
+- 📫 Inner Mongholia
