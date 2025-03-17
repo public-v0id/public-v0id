@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @public-v0id
 - 👀 I’m interested in programming, music and literature
-- 🌱 I’m currently learning Java, C, Assembly and C++
+- 🌱 I’m currently learning C, Assembly and C++
 - 📫 Inner Mongholia
